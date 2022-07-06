@@ -1,1 +1,0 @@
-# home0712.github.io
